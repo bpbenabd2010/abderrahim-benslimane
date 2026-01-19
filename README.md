@@ -2,9 +2,8 @@
 
 **Location:** Montréal, QC, Canada  
 **Work authorization:** Canadian Permanent Resident  
-**Phone:** +1 438 833 3632  
 **Email:** abenslimane2022@gmail.com  
-**LinkedIn:** https://www.linkedin.com/in/abderrahim-benslimane-69b08847/  
+**LinkedIn:** https://www.linkedin.com/in/abderrahim-benslimane
 **Credly:** https://www.credly.com/users/benslimaneabderrahim  
 
 ---
